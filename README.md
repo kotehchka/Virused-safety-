@@ -1,2 +1,2 @@
-# Virused-safety-
-Pranked frends Virus 😁
+Virused no trojan
+prank frends no trojan on computer
